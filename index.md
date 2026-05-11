@@ -6,5 +6,4 @@
 **Univesitat de Barcelona - Raval**<br>
 **C/ Montalegre 6, Barcelona**
  
-Download Poster:<br>
-<a href="wind_poster_2026_05_19.jpeg"><img src="wind_poster_2026_05_19.jpeg" alt="poster" style="width:200px;"/>
+<a href="wind_poster_2026_05_19.jpeg"><img src="wind_poster_2026_05_19.jpeg" alt="poster" style="width:400px;"/>
