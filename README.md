@@ -1,12 +1,12 @@
-# Book Talks: War Remains &amp; Master of Peace
+# Quin rol juguem en el genocidi quan col-laborem amb l'acadèmia d'Israel?
 
-Yasmine Khayyat & Nikolas Kosmatopoulos
+Maya Wind
 
-2 June 2025, 16:00-18:00 
+19 May 2026, 18:30-20:00 
 
 <br>
-Universitat Pompeu Fabra<br>
-Ciutadella Campus<br>
+Aula Magna<br> 
+Universitat de Barcelona - Raval<br> 
+C/ Montalegre 6, Barcelona<br>
 
-More information coming soon...
 
